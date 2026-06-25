@@ -4,4 +4,6 @@
 <img src="https://file.garden/afOzvZALWB7P0ssM/Untitled12_20260625000246.png"/>
 <br>
 <br>
+<p align="center">$\text{\color{#83917A} why are you }$</p>
+<p align="center">$\text{\color{#83917A} so far away from me ? }$</p>
 <img src="https://file.garden/afOzvZALWB7P0ssM/Untitled12_20260625010948.png"/>
